@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @messukii
 - 👀 I’m interested in pharmacy technician
 - 🌱 I’m currently learning pharmacy??
-- 💞️ I’m looking to share some memories?
+- 💞️ I’m here to share about my life journey?
 - 📫 You can reach me on my instagram @qrthnzl
 
 <!---
